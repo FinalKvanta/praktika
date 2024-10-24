@@ -1,1 +1,1 @@
-***pratika***
+pratika
